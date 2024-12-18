@@ -30,7 +30,7 @@
 
 ## Connect with Me
 - [LinkedIn](link-dont have one but soon)
-- [GitHub](link-https://github.com/utsav512007)
+- [GitHub](link-to-https://github.com/utsav512007)
 - [Email](mailto:utsav6057@gmail.com)
 
 --- 🛡️
